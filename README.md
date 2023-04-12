@@ -1,4 +1,4 @@
-🚀 Empowering businesses to unlock their full potential through data science and AI for accelerated progress and transformation!
+🚀 I Empower businesses to unlock their full potential through data science and AI for accelerated progress and transformation!
 
 🎯 With a strong background in Software Engineering and a Master's in Artificial Intelligence, I bring over seven years of experience in Data Analytics Consultancy, Business Development, and Testing across the Banking and Ed-Tech domains. My unique approach and solid tech domain knowledge have consistently driven success and positive change for the companies I've worked with.
 
